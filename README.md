@@ -1,0 +1,1 @@
+# Cuut-Sangar-Resolusi
